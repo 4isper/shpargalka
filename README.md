@@ -1,8 +1,1 @@
 # shpargalka
-
-
-
-
-
-
-t
